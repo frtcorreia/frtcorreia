@@ -5,7 +5,6 @@
 - 🔭 I’m currently working in my own app and api own bout fishing  🎣  !
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2020 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to fish, drive and relax 🤣🤣🤣
 
 ### Connect with me:
